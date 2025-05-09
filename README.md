@@ -21,14 +21,15 @@ I'm passionate about the intersection of blockchain, content, and community. I w
 
 ## 📢 Projects & Campaigns
 
-Nil
-I've never worked on any Web3 projects but would love to start now and in the future add my work with you to my portfolio 
+Nil - I've never worked on any Web3 projects but would love to start now and in the future add my work with you to my portfolio 
 
 ## 📬 Let's Connect
 
 - [Twitter](https://twitter.com/@Bosco_0nweb3)  
 - [Telegram ]:Johnbosco50
+- 
 - Email: gabjohnbo61476781@gmail.com
+- 
 - Discord:bosco_0nweb3
 ---
 
