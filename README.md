@@ -22,44 +22,12 @@ I'm passionate about the intersection of blockchain, content, and community. I�
 
 ## 📢 Projects & Campaigns
 
-### [DAO or Project Name]
-> Community growth & content strategy lead
-
-- Grew Discord from 500 to 5,000+ members in 3 months  
-- Led weekly AMAs, created onboarding guides, and organized meme contests  
-- Used Collab.Land for token-gated access and Snapshot for voting
-
-### [NFT/DeFi Startup Launch]
-> Managed Twitter/X and Discord presence
-
-- Created a 30-day content calendar and campaign hashtags  
-- Wrote daily threads, memes, and educational posts  
-- Boosted engagement rate by 300% in the first month
-
----
-
-## 🌍 Web3 Contributions
-
-- Moderator for [DAO or community]  
-- Contributed social campaign ideas for [Protocol/Project]  
-- Participant in [Web3 marketing hackathons or events]
-
----
-
-## 🧾 Credentials
-
-- **Odyssey DAO - Web3 Growth Program**  
-- **Layer3 Quests**: Social bounty completions  
-- **Forefront & Bankless**: Community contributor
-
----
+Nil;I've never been part of a Web3 project 
 
 ## 📬 Let's Connect
 
-- [Twitter](https://twitter.com/yourhandle)  
-- [LinkedIn](https://linkedin.com/in/yourprofile)  
-- [Lens](https://lenster.xyz/u/yourhandle)  
-- Email: yourname@email.com
+- [Twitter](https://twitter.com/@Bosco_0nweb3)    
+- Email: Gabjohnbo61476781@gmail.com
 
 ---
 
